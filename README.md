@@ -1,1 +1,1 @@
-# 2.Mugarria-Programazioa-Selin-Cocarca-
+# Mugarria-Programazioa-Selin-Cocarca-
